@@ -21,13 +21,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/c3152415df5d0330a6aa89ffd35e2c8f/c7ade088c5ba2f86-b7/s400x600/c13fb7ce1d476368dfef433791da45a225559550.pnj" />
-</p>
-
- $${\color{#D98DAC} \space Karie}$$
-
-<p align="center">
-  <img src="https://biscuit.crd.co/assets/images/gallery02/feb92192.gif?v=cc1c6dfa" alt="animated" />
+  <img src="https://64.media.tumblr.com/24810a5077b55c9980bbee005edca46c/46925a9bcc7d49b4-bf/s1280x1920/9006ac712b703a21bd8b6436e445d5d78e7100e1.pnj" />
 </p>
 
 <p align="center">
