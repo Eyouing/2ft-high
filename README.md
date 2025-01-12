@@ -36,4 +36,4 @@
   <img src="https://64.media.tumblr.com/a220ee2a46740c442dc51a74ce467f3f/bf78766e1fb1cbb8-06/s640x960/ad27d96c2c14dbebb56e3667b3658c42b62ccbfb.pnj" />
 </p>
 
-![](https://komarev.com/ghpvc/?username=2ft-high&label=✦&color=E593AD)
+
