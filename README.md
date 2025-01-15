@@ -30,7 +30,7 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/8fedf54e97a438e79bdaba5e43e74530/16d4c3fd58ded40c-32/s1280x1920/4f90514246f8c170d47b1eec01159ff106020b6f.pnj" />
+  <img src="https://64.media.tumblr.com/c044b03858036fae2071650d4e187484/79a96f78dae389ca-0f/s1280x1920/3f528e20052d0b94cdaaf2e1dc3d7067498bd56c.pnj" />
 </p>
 
 <p align="center">
