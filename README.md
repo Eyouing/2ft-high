@@ -26,14 +26,6 @@
 <br>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/9f03615a53a9460ba62c6f89b9139ba5/9060b7bddf5ead60-6f/s400x600/bf68ede154d7c55da9d17295592befff6884fc27.pnj" />
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/c044b03858036fae2071650d4e187484/79a96f78dae389ca-0f/s1280x1920/3f528e20052d0b94cdaaf2e1dc3d7067498bd56c.pnj" />
-</p>
-
-<p align="center">
   <img src="https://64.media.tumblr.com/3c7c7685e9687c2c5c45cce24a7a1edc/c7ade088c5ba2f86-8e/s400x600/b350713a3f5caa282d596a578579ffa0436e0e2f.pnj" />
 </p>
 
