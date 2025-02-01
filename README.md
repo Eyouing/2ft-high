@@ -12,6 +12,11 @@
   <img src="https://64.media.tumblr.com/0337a60a5d3c48d3b0d6664e8d814c4a/4b0c8bc438f3c53f-25/s400x600/0ec9202ccc3b2e295ae2265ae6539ca0aca6d9c0.pnj" />
 </p>
 
+<p align="center"
+  
+[ᴀᴛᴀʙᴏᴏᴋ](https://2ft-high.atabook.org/) .𖥔 ݁ ˖ [ʀᴇɴᴛʀʏ](https://rentry.co/2ft-high) .𖥔 ݁ ˖ [sᴛʀᴀᴡᴘᴀɢᴇ](https://2ft-high.straw.page/) 
+
+
 <p align="center">
   <img src="https://64.media.tumblr.com/a5662fae8bd3c487a27960980d205919/90efe93b46c150b8-6c/s640x960/06986f06a8df00f2e3a405d32340c4a4dc990b32.pnj" />
 </p>
