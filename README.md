@@ -1,6 +1,6 @@
 
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=(๑>◡<๑)&color=3F704D)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=사냥꾼&color=3F704D)</p>
 
 <p align="center">
 linkssszz..sign my ata pls
